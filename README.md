@@ -9,5 +9,5 @@
 
 Okay that's like it.. <sub>This is so ass... lmao.</sub>
 
-![https://i.pinimg.com/474x/b5/33/2e/b5332ec3f0f198ff5d17c89748bc8233.jpg]
+<img width="320" height="319" alt="image" src="https://github.com/user-attachments/assets/2c6838f7-52ad-47a5-9bc9-ec1bae0a8c8e" />
 
