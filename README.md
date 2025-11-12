@@ -9,5 +9,5 @@
 
 Okay that's like it.. <sub>This is so ass... lmao.</sub>
 
-[<img width="333" height="498" alt="image" src="https://github.com/user-attachments/assets/42e8b0c4-c75d-4cf6-b4a1-f5c331ec8f39" />](https://media1.tenor.com/m/IOMQQqmZo1YAAAAd/equius-equius-zahhak.gif)
+![https://i.pinimg.com/474x/b5/33/2e/b5332ec3f0f198ff5d17c89748bc8233.jpg]
 
