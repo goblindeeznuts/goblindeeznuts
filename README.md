@@ -1,16 +1,14 @@
-## Hi there 👋
+!(https://media.discordapp.net/attachments/1324457611042754652/1417707590925942835/1f6755e889e0e5180cdc22519c400718.gif?ex=6915f355&is=6914a1d5&hm=46dc51a493c0be453db22c616eb36af58dc098648112dd6087c70b162346bfc5&=)
 
-<!--
-**goblindeeznuts/goblindeeznuts** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+!(<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/cf3ee423-b996-4aa8-b049-1b63b2812c04" />)
+!(<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/81eb3f27-4330-4e56-8409-bf5e0d8d3e75" />)
+!(<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/ee4c76fd-283f-43bc-9a52-6dd74853d460" />)
 
-Here are some ideas to get you started:
+- *You can call me **Equius**, or **Karkat**, or **Bro***, any is fine. <sub>As well as any other of my kin names; theres a lot.</sub>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+> [!IMPORTANT]
+> **`#780606` DNI:** *Any under 14*, *basic DNI criteria*, fakeass identities <sub>Such as MAPs, transracial/RCTA, transabled/transautistic, etc.</sub>
+
+Okay that's like it..
+!(https://tenor.com/view/equius-equius-zahhak-homestuck-headache-migraine-gif-2369755707426317142)
+
