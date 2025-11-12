@@ -8,5 +8,6 @@
 > **`#780606` DNI:** *Any under 14*, *basic DNI criteria*, fakeass identities <sub>Such as MAPs, transracial/RCTA, transabled/transautistic, etc.</sub>
 
 Okay that's like it..
+
 <img width="333" height="498" alt="image" src="https://github.com/user-attachments/assets/42e8b0c4-c75d-4cf6-b4a1-f5c331ec8f39" />
 
