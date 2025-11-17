@@ -6,7 +6,7 @@
 - *You can call me **Equius**, or **Karkat**, or **Bro***, any is fine. <sub>As well as any other of my kin names; theres a lot.</sub>
 
 > [!IMPORTANT]
-> **DNI:** *Any under 14*, *basic DNI criteria*, fakeass identities <sub>Such as MAPs, transracial/RCTA, transabled/transautistic, etc.</sub>
+> **DNI:** *Any under 14*, *basic DNI criteria*, fakeass identities <sub>Such as MAPs, transracial/RCTA, transabled/transautistic, etc.</sub>, **Cronus defenders** <sub>*(This does not mean Cronus ENJOYERS/fans, just people who DEFEND him)*</sub>
 
 Okay that's like it.. <sub>This is so ass... lmao.</sub>
 
