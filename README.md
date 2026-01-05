@@ -8,6 +8,7 @@
 
 > [!IMPORTANT]
 > **DNI:** *Any under 14*, *basic DNI criteria*, fakeass identities <sub>Such as MAPs, transracial/RCTA, transabled/transautistic, etc.</sub>, **Cronus defenders** <sub>*(This does not mean Cronus ENJOYERS/fans, just people who DEFEND him)*</sub>
+> **INT (PLEASE):** Aradia, Nepeta, Eridan, Gamzee, or Dave kins/irls/or alters
 
 Okay that's like it.. <sub>This is so ass... lmao.</sub>
 
