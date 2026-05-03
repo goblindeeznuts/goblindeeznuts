@@ -4,7 +4,9 @@ It's just for my (fictkin/kinshift) strawpages now, ok.,...
 
 [Equius Zahhak](https://equius-zahhak.straw.page) <-- My oldest straw
 
-[Tobias Erin Rodgers](https://tobyerodgers.straw.page) <-- My newest straw
+[Eridan Ampora](https://eridan--ampora.straw.page) <-- My newest straw
+
+[Tobias Erin Rodgers](https://tobyerodgers.straw.page)
 
 [Jack "EJ" Nyras](https://jackejnyras.straw.page)
 
